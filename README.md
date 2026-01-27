@@ -1,2 +1,2 @@
-# inertiqa.com
+# rand-usr.com
 all images are © do as you please with the code
