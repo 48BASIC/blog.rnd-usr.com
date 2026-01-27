@@ -1,2 +1,2 @@
-# rand-usr.com
+# blog.rand-usr.com
 ©
